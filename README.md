@@ -1,2 +1,1 @@
-# Buatkamu
-COBAA DEHH
+
